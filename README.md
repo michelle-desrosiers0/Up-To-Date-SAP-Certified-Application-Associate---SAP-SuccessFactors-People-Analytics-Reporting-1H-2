@@ -1,0 +1,1 @@
+# Up-To-Date-SAP-Certified-Application-Associate---SAP-SuccessFactors-People-Analytics-Reporting-1H-2
